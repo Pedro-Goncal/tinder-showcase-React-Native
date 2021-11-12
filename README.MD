@@ -18,7 +18,7 @@
 #### For more info please visit my [LinkedIn](https://www.linkedin.com/in/pedro-goncalves88/)
 
 
-Thank you for your support I hope you enjoy this app.
+Thank you for your support Happy Coding.
 
 
 
